@@ -1,2 +1,2 @@
-# Me-
-    ![(arte no mio)-Photoroom](https://github.com/user-attachments/assets/c41564e1-b7dd-4bdd-a325-7cf3eb050ee8)
+# Me
+![image](https://github.com/user-attachments/assets/b9b9509a-d40b-4638-9265-a31d2377d6ff) **Us**?
